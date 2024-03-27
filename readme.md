@@ -1,0 +1,1 @@
+https://github.com/MHS-Math-Club/lectures
